@@ -1,0 +1,1 @@
+# Gala-stores-insights
